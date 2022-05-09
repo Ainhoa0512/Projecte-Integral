@@ -17,3 +17,21 @@
 𝐀 𝐩𝐚𝐫𝐭𝐞 𝐝𝐞 𝐞𝐬𝐨 𝐡𝐞𝐦𝐨𝐬 𝐛𝐮𝐬𝐜𝐚𝐝𝐨 𝐮𝐧𝐚𝐬 𝐛𝐢𝐬𝐚𝐠𝐫𝐚𝐬 𝐩𝐚𝐫𝐚 𝐩𝐨𝐝𝐞𝐫 𝐢𝐦𝐩𝐫𝐢𝐦𝐢𝐫𝐥𝐚𝐬 𝐜𝐨𝐧 𝐥𝐚 𝐦𝐚𝐪𝐮𝐢𝐨𝐧𝐚 𝟑𝐝 𝐲 𝐡𝐚𝐜𝐞𝐫 𝐝𝐨𝐬 𝐩𝐮𝐞𝐫𝐭𝐚𝐬 𝐞𝐧 𝐥𝐚𝐬 𝐜𝐮𝐚𝐥𝐞𝐬 𝐡𝐚𝐫𝐚 𝐪𝐮𝐞 𝐬𝐞 𝐩𝐮𝐞𝐝𝐚 𝐚𝐛𝐫𝐢𝐫 𝐮𝐧𝐚 𝐩𝐚𝐫𝐭𝐞 𝐝𝐞 𝐥𝐚𝐬 𝐥𝐚𝐦𝐢𝐧𝐚𝐬 𝐩𝐨𝐫 𝐥𝐚 𝐦𝐢𝐭𝐚𝐝 𝐩𝐚𝐫𝐚 𝐩𝐨𝐝𝐞𝐫 𝐩𝐨𝐧𝐞𝐫 𝐩𝐮𝐞𝐫𝐭𝐚𝐬, 𝐜𝐨𝐧 𝐥𝐚𝐬 𝐜𝐮𝐚𝐥𝐞𝐬 𝐩𝐨𝐝𝐫𝐞𝐦𝐨𝐬 𝐡𝐚𝐜𝐞𝐫 𝐪𝐮𝐞 𝐬𝐞 𝐩𝐮𝐞𝐝𝐚 𝐚𝐛𝐫𝐢𝐫 𝐲 𝐫𝐞𝐠𝐚𝐫 𝐥𝐬 𝐩𝐥𝐚𝐧𝐭𝐚𝐬 𝐪𝐮𝐞 𝐩𝐨𝐧𝐠𝐚𝐦𝐨𝐬.
 
 𝐓𝐞𝐧𝐞𝐦𝐨𝐬 𝐥𝐚 𝐢𝐝𝐞𝐚 𝐝𝐞 𝐡𝐚𝐜𝐞𝐫 𝐝𝐨𝐬 𝐩𝐥𝐚𝐧𝐭𝐚𝐬, 𝐥𝐚 𝐩𝐥𝐚𝐧𝐭𝐚 𝐛𝐚𝐣𝐚 𝐩𝐚𝐫𝐚 𝐩𝐥𝐚𝐧𝐭𝐚𝐬 𝐦𝐚𝐬 𝐠𝐫𝐚𝐧𝐝𝐞𝐬 𝐲 𝐥𝐚 𝐩𝐥𝐚𝐧𝐭𝐚 𝐝𝐞 𝐚𝐫𝐫𝐢𝐛𝐚 𝐩𝐚𝐫𝐚 𝐩𝐥𝐚𝐧𝐭𝐚𝐬 𝐦𝐚𝐬 𝐩𝐞𝐪𝐮𝐞ñ𝐚𝐬, 𝐜𝐨𝐧 𝐮𝐧 𝐭𝐫𝐨𝐳𝐨 𝐝𝐞 𝐥𝐚𝐦𝐢𝐧𝐚 𝐪𝐮𝐞 𝐩𝐚𝐫𝐭𝐢𝐫𝐞𝐦𝐨𝐬 𝐩𝐨𝐫 𝐥𝐚 𝐦𝐢𝐭𝐚𝐝 𝐡𝐚𝐫𝐞𝐦𝐨𝐬 𝐥𝐚𝐬 𝐩𝐥𝐚𝐧𝐭𝐚𝐬 𝐝𝐞𝐥 𝐦𝐢𝐧𝐢 𝐢𝐧𝐯𝐞𝐫𝐧𝐚𝐝𝐞𝐫𝐨.
+
+
+
+### Dia 4
+
+Hoy hemos cortado y montado el invernadero, hemos cortado las maderas de las medidas correspondidos y luego en la máquina 3d hemos cortado el metraquilato para el techo y las  puertas.
+
+Después de cortar hemos pegado con silicona caliente las maderas a el metraquilato haciendo la forma del mini invernadero.
+
+
+### Último día
+
+Hemos hecho en una puerta el logo del PFI con la máquina de láser
+
+A parte de eso he os acabado de montar el mini invernadero, con unos tornillos hemos pegado el techo y las puertas.
+
+Las puertas las hemos hecho con bisagras hechas en la máquina 3D y la ajenos pegado con tornillos y silicona caliente.
+
